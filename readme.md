@@ -4,5 +4,13 @@
 
 
 
-No período das férias de verão eu pratiquei muitos esportes como corrida de saco, resistência a fedor entre outros, nessa eu tive oportunidade de ir jogar na Arábia e lá eu encontrei a mãe do meu colega Marcelo jogando beisebol.
+No período das férias de  eu pratiquei muitos esportes como corrida de nadar, resistência a fedor entre outros, nessa eu tive oportunidade de ir jogar na Arábia e lá eu localizei a mãe do meu colega Marcelo.
+
+
+
+oi bom dia 
+
+
+
+oi como você esta no dia de hoje?
 
